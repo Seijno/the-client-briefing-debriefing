@@ -6,7 +6,8 @@ Met de informatie die wij op 25-9-2023 hebben gekregen en begrepen hebben wij de
 
 Bedrijfsnaam: De Hallen 
 
-Contactpersoon en contactgegevens: nog onbekend 
+Contactpersoon en contactgegevens:
+Myrna de Wit: myrna@dehallen-amsterdam.nl
 
 Datum aanvraag: 22/9/'23 
 
